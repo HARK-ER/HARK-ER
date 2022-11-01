@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HARK-ER 
+- 👀 I’m interested in HACKING
+- 🌱 I’m currently learning PYTHON
+- 💞️ I’m looking to collaborate on any form of hacki
+- 📫 How to reach me harrkk.err@gmail.com
